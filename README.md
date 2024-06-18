@@ -8,5 +8,5 @@ Meu nome e Ana Julia
 
 - ### Você pode entrar em contato comigo 📧
 
-- 00001109588069sp@al.educacao.sp.gov.br
+- 00001109588069sp@al.educacao.sp.gov.br 0u no meu instragam
  @ana_mazzon357
